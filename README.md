@@ -1,0 +1,2 @@
+# mintaya
+donasi lak njalok
